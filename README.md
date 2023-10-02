@@ -1,6 +1,6 @@
 # ⚡️Welcome to my web version of my CV⚡️
 
-## I hope this works to meet you, it could be the begiong of something serious.
+## I'm excited about the potential here – this could mark the beginning of something truly remarkable!
 
 If you want to see my certificatios, **[click here](https://platzi.com/p/MichaelRodriguez/)**
 
